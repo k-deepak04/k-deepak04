@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **deepkushwah824@gmail.com**
 
-- 📄 Know about my experiences https://k-deepak04.netlify.app/ 
+- 📄 Know about my experiences
 
 - ⚡ Fun fact **The first computer “bug” was an actual real-life bug**
 
